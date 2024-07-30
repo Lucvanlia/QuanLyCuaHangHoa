@@ -1,1 +1,1 @@
-# QuanLyCuaHangHoa
+# quan-quan
